@@ -1,0 +1,1 @@
+# Pythonda-shart-operatorlari-pass
